@@ -13,3 +13,6 @@ But also like...
 or is -this- real?
 of was it //this?//
 or (this)?
+
+- I mean
+- It still is very hard...
